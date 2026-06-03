@@ -1,4 +1,4 @@
-# 
+# Secure raydium trading bot add-ons for Mac OS | Updated raydium trading bot add-ons for PC Windows. Featuring scalping algorithms and momentum analysis — optimized for maximum performance on every platform.
 
 
 
